@@ -5,5 +5,5 @@
 - 💬 Ask me about my Midwest Emo recommendations. 
 - 📫 How to reach me: on Twitter @JuanEsparranza
 
-![Capture](https://github.com/JuanEsparranza/JuanEsparranza/assets/97992784/33b68900-fe26-4ebb-a060-5d1cc54ea891)
--->
+
+-->![jon](https://github.com/JuanEsparranza/JuanEsparranza/assets/97992784/f31c3af2-d406-4f61-b736-436f79ba23ff)
