@@ -6,5 +6,5 @@
 - 📫 How to reach me: on Twitter @JuanEsparranza
 
 
--->![Jon](https://github.com/JuanEsparranza/JuanEsparranza/assets/97992784/aa21aad0-7d9f-443e-aef6-f7fd8f232c87)
 
+![Jon](https://github.com/user-attachments/assets/379a57c6-60a8-4271-b985-4b7331880d7b)
